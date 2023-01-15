@@ -1,6 +1,4 @@
 # My Safe Campus Privacy Policy
-
-Privacy Policy  
 ----------------
 
 ### Introduction  
